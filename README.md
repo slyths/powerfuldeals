@@ -1,1 +1,0 @@
-# powerfuldeals
